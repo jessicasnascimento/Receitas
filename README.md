@@ -1,3 +1,3 @@
 # Receitas
 
-## Praticidade e criativade na hora de cozinhar! ;)
+ Criativade na hora de cozinhar! ;)
